@@ -3,4 +3,4 @@ Code for a site full of school exploits, cheats, hacks etc... I will update this
 
 
 
-IDEK the link is ezploitation.pages.dev (note its 2 dollars for access srry i spent a lot of time on these im not jus tgiving them out ot anyone!)
+IDEK the link is https://ezploitation.pages.dev (note its 2 dollars for access srry i spent a lot of time on these im not jus tgiving them out ot anyone!)
